@@ -2,4 +2,4 @@
 
 
 
-Ready to scale your brand with paid ads?
+Ready to scale your brand with paid ads?  no
